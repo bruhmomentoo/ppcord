@@ -5,6 +5,8 @@
 ![imagine cynthia](https://img.shields.io/github/downloads/cainy-a/ppcord/total)
 
 
+# sponsored by amogus
+u are SUs.
 
 <span style="font-size: 15rem; line-height: 5rem; padding-top: 5rem; display: block; font-family: 'Papyrus'">PROK CORD GO BRRR</span>
 
